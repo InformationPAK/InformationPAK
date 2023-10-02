@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @InformationPAK
+- 👀 I’m interested in everything that involves internet 
+- 🌱 I’m currently learning to become a web developer 
+- 💞️ I’m looking forward on learning something new
+- 📫 You can reach me through mitsucaburalme8@gmail.com
